@@ -1,4 +1,4 @@
-## Minuta Mayo 14, 2023
+## Minuta Mayo 4, 2023
 
 Tomó nota: Daniel Garcia
 
